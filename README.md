@@ -3,10 +3,10 @@
 ---
 
 *Your Name:*  
-**Praveen Ananth S**
+**mothieram ln**
 
 *Register Number:*  
-**713322AD078**
+**713322AD069**
 
 ---
 
